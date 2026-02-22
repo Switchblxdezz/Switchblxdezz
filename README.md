@@ -1,5 +1,6 @@
 ## loveblxdes
-![](https://i.postimg.cc/k57jYdNb/Untitled126-20260221235201.png) 
+
+ ![](https://i.postimg.cc/k57jYdNb/Untitled126-20260221235201.png) 
              
                
    askname       /       Fliqpy     . ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 
@@ -17,4 +18,5 @@
                    ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  int paplaplplslspl,,, 
 ~              `    stupid  boy.      you keep begging, but I won't let you in! `
          bluelight hurts my eyes,    colors look different to me due to settings (eye comfort)   !
+				
 				 ![](https://i.postimg.cc/Xv3V2XDT/Untitled126-20260221235157.png) 
