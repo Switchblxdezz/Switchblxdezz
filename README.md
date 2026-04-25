@@ -11,7 +11,7 @@
        ‎ ‎ ‎ ‎ ‎ yumesint        :      flaky, petunia, flippy, popee, guardian, anne, lapis, pearl, etc
                  ‎ ‎ ‎ ‎  hypersharing     ,,,       dont like?  it's okay! hide me! I don't mind  <33  
             ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  Sapphic/berriromantic       +         pomogender
-                    ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ t8kn by ml, osha <33         ︵︵     🩷    
+                    ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ t8kn by ml, osha <33    plantonicallyby matt!     ︵︵     🩷    
          ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  .   typical dni     !                        I block freely. 
   ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎   ٍ   :   artistwriter       ,        platonichusb ;;  amii ! 
     ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ socialanxiety    .    brokenhumor     
