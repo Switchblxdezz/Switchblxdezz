@@ -17,5 +17,5 @@
     ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ socialanxiety    .    brokenhumor     
                    ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  int paplaplplslspl,,, 
 ~              `    stupid  boy.      you keep begging, but I won't let you in! `
-         bluelight hurts my eyes,    colors look different to me due to settings (eye comfort)   !
+       ***  bluelight hurts my eyes,    colors look different to me . they look all muted   !  ***
 				![](https://i.postimg.cc/Xv3V2XDT/Untitled126-20260221235157.png) 
